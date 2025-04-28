@@ -1,1 +1,1 @@
-# DLithe-Interahip-Project
+# DLithe-Internship-Project
